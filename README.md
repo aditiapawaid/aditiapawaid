@@ -2,7 +2,7 @@
 - 👀 I’m interested in her
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me just search me on IG @adtya._
+- 📫 How to reach me just search me on IG @adtyap._
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i'm not a god
 
